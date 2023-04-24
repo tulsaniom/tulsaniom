@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tulsaniom
+- 👋 Hi, I’m Om 
 - 👀 I’m interested in ...Drumming, Learning new stuffs
 - 🌱 I’m currently learning ...Bsc Computer Science
 - 💞️ I’m looking to collaborate on ...
